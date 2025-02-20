@@ -1,0 +1,1 @@
+# Rastgele-Say-Yazd-rma
